@@ -1,1 +1,1 @@
-# New1220
+Akimitsu Takai
